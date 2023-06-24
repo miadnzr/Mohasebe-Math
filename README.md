@@ -1,1 +1,0 @@
-# Mohasebe-Math
